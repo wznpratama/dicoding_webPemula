@@ -14,7 +14,16 @@ Tugas akhirnya berupa membuat Profil Pribadi kita dengan syarat :
 
 
 https://www.dicoding.com/academies/123
-
-
-
+.
+.
+.
+.
+.
+.
+.
+.
+.
+.
+.
+.
 Muhammad Wizan Pratama - 2019
